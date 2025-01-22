@@ -1,0 +1,2 @@
+# Knime égalité H/F
+ 
